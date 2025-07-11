@@ -7,3 +7,4 @@ Soy estudiante de la UMSS univeridad de bolivia, cochabamba. tengo 19 años, est
 # Me gusta el boxeo🥊
 # Mis amigos son la wbda 🚨
 "Uno no da consejos por inteligente, uno da consejos por que ya fue imbecil xd😆😆😆"
+ 
